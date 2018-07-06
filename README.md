@@ -1,0 +1,1 @@
+# speculationnow.github.io
